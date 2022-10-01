@@ -1,2 +1,1 @@
-My name is Vanessa
-My surname is Harrison
+My name is Vanessa Harrison
