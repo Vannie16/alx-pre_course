@@ -1,1 +1,1 @@
-My name is Vanessa Harrison
+My name is Vanessa Harrison.
